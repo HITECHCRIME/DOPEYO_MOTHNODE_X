@@ -1,0 +1,2 @@
+# DOPEYO_MOTHNODE_X
+Gaca x Ganju x MOTHNODE Split
