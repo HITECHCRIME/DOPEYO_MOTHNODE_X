@@ -8,47 +8,56 @@ Gaca x Ganju x MOTHNODE Split
 czuje ze to 
 nie - jest - zlo
 
-(Co nie)
-Jak tu mam
+(co nie)
+jak tu maaaam
 zam - knac - dno
 
-Czuje ze to 
+czuje ze to 
 nie - jest - zlo, 
 
 no bo ziomek to jest
 niezly zlom
 
+(no przeciez)
+
 nawet z boku jak -
 znowu na to patrzeee
 ze lsniacego szkla i wody 
-moge (tobie) skonstruowac niebo
+moge skonstruowac niebo
 
-wtedy widze 
-jakie rzeczy tu sie dzieja, 
-z tyłu floty tu przeplywa piracka ekipa
-na tym jednym buchu (cud ze0
-przeciez zwykla, oj nieeee, przeciez taka  gibka
-ale nasze oczka swieca (juz sie swieca)
+poprzez kłeby dymu widze 
+jakie rzeczy tu sie dzieja - cudy
+
+piracka ekipa
+z tyłu floty 
+tu przeplywa 
+na tym jednym buchu 
+przeciez zwykla, 
+oj nieeee, 
+przeciez taka gibka
+ale oczka swieca (juz sie swieca)
 
 za to
 co ja tutaj mam nawinac
 po drugim czy juz piatym buchu 
-znowu dzikim kotom tu odwali
+znowu dzikim kotom tu odwala
 nawet w takim barze 
 gdzie normalnosc to obelga
+
 czas rozszerzyc te metraże
 zmienić bieg, bez pobudek
 wrzucić kawę
 wrzucić kawę 
-
 trzeci wydech raz za razem
-mgla co przecznice ich spowija
+
+mgla przecznice ich spowija
 tyle dymu tu 
 tyle dymu na ulicy
 zaraz zjedziesz do parteru
 ku powszechnej tu radosci 
-to na zdrowie wszystkich gosci? ta
-wez no szklo i szybko westchnij
+to na zdrowie wszystkich gosci?
+
+ta, wez no szklo i szybko westchnij
 lepiej ci? co? no to sobie pośpij
 
 bulbulbul
