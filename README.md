@@ -20,14 +20,14 @@ niezly zlom
 
 nawet z boku jak -
 znowu na to patrzeee
-z lsniacego szkla i wody 
-moge skonstruowac niebo
+ze lsniacego szkla i wody 
+moge (tobie) skonstruowac niebo
 
 wtedy widze 
 jakie rzeczy tu sie dzieja, 
-z tyłu floty tu przeplywa nasza piracka ekipa
-na tym jednym buchu (cud ze)
-przeciez zwykla, przeciez gibka
+z tyłu floty tu przeplywa piracka ekipa
+na tym jednym buchu (cud ze0
+przeciez zwykla, oj nieeee, przeciez taka  gibka
 ale nasze oczka swieca (juz sie swieca)
 
 za to
@@ -39,6 +39,7 @@ gdzie normalnosc to obelga
 czas rozszerzyc te metraże
 zmienić bieg, bez pobudek
 wrzucić kawę
+wrzucić kawę 
 
 trzeci wydech raz za razem
 mgla co przecznice ich spowija
