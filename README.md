@@ -32,7 +32,7 @@ piracka ekipa
 z tyłu floty 
 tu przeplywa 
 na tym jednym buchu 
-przeciez zwykla, 
+zwykla przeciez, 
 oj nieeee, 
 przeciez taka gibka
 ale oczka swieca (juz sie swieca)
